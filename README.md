@@ -1,1 +1,0 @@
-# Jeremi-Midura.github.io
